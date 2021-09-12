@@ -1,7 +1,7 @@
 - 👋 *Hello there, I’m Edith*
 
-I’m interested in Psychology, behavioral economics, data analysis and statistics
-I’m looking to collaborate on government agencies dedicated to the creation of public policies based on behavioral sciences 
+I’m interested in Psychology, behavioral economics, data analysis and statistics.
+- I’m looking to collaborate on government agencies dedicated to the creation of public policies based on behavioral sciences 
 -  [@edith__tc](https://twitter.com/edith__tc) on twitter, email edith_trejo@comunidad.unam.mx, IG [@edith__tc](https://www.instagram.com/edith__tc/).
 -  I write for [Proyecto ICCE](http://132.248.228.115/economia_conductual/index.php/home/) and [UniverZoom](http://blogs.universum.unam.mx/univerzoom/2021/05/18/donacion-de-organos-en-mexico-una-vision-desde-las-ciencias-del-comportamiento/)
 
